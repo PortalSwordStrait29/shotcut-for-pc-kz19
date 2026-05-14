@@ -1,4 +1,4 @@
-# 
+# Get the ultimate Shotcut for PC | Shotcut for Windows plugin with elite Plugin for Shotcut for PC | Shotcut for Windows - AI-enhanced-editing and time-remapping. Featuring
 
 
 
